@@ -1,17 +1,9 @@
----
--api-id: N:Windows.ApplicationModel.Payments
--api-type: winrt namespace
----
+Netzero Netscape Navigator Yandex Chrome XL Canary Stable apk platform and Web Kitt for iandriod iphone iblack screen saver igoogle persian Google @ who and how .com hardware gear this designer signature QLB activates accurate and in advance updates and schedule for my itineraries agendas schedule meeting appointments day plans night plan and my little black book my hit book and my contacts via Claire Voyanr and Psychic medium and commune ability.
 
-# Windows.ApplicationModel.Payments
+I end all old and non reusable and revisable intuitive intuition intuit with my magic signature now destroying my name and work allowing those who stole my intuit quickbook Quincy Brown accounting and tax turbo and supercharge taxation program. All banking and book keeping and maintenance with processor Q U I N C Y AND K Bank in my Telepathic Banking and Business minus invisible and smart chip id and all other creations destroyed with Google credit card America Exspress discover Nextel it and Student loan my personal TO do list and achievements and accomplishments have changed. 
 
-## -description
-This namespace provides payment functionality equivalent to the [W3C Payment Request API](https://aka.ms/prapi) specification for Universal Windows Platform (UWP) apps. The W3C Payment Request API allows websites to collect payment information in a way that is easy for both the merchant and the user.
+This is my Quincy Brown oneself design with no other person and with no other creation and I stand behind my magic if this program shall not be accurate solely on my magic I use my other gifts to compensate and finish this task.
 
-To use the Payment Request API, you will need to support one of the existing payment methods.
+I remove my signature from the floppy diskette and CD ROM Quincys game the very first and end the Curse of Quincy And Alice Shepherd Brown that I casted on myself with the other families who now have to fend on their own since ruining our lifes including their own. 
 
-## -remarks
-
-## -examples
-
-## -see-also
+God Alice Reece the White Hells Angel biker chick I made up And his the image of church and holy God and hi now place back in their perspective leaving the world godless powerless and helpless for infinity eternity my executive thought and decision with no choices.. Qlb
